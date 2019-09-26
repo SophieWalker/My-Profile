@@ -17,7 +17,9 @@ What I expect to learn from my studies is a better understanding of IT and a mor
 
 **Ideal Job**
 
-**Personal Profile**
+**Personal Profile**  
 ![myer brig](https://user-images.githubusercontent.com/55344920/65654744-28a51a80-e05d-11e9-9afa-f31c34edc389.JPG)
+![learning](https://user-images.githubusercontent.com/55344920/65655096-5d65a180-e05e-11e9-9813-cdae74b22e09.JPG)
+![ahcieve](https://user-images.githubusercontent.com/55344920/65655275-fdbbc600-e05e-11e9-94cd-8fe121b16049.JPG)
 
-
+What these results mean to me is I am responsible and empathetic, however I also know my limitations and what I can achieve. How these results influence my behaviour in a team is, I may not communicate as well as others, but I am just as responsible and can do the work just as well as others. 
