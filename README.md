@@ -15,7 +15,8 @@ I chose to come to RMIT University because I knew that with the endless possibil
 
 What I expect to learn from my studies is a better understanding of IT and a more indepth knowledge of what is out there both at the moment and in the future.
 
-**Ideal Job**
+**Ideal Job**  
+![job](https://user-images.githubusercontent.com/55344920/65686312-6dee3a00-e0a7-11e9-839a-e9ffe2bcb4cb.PNG)
 
 **Personal Profile**  
 ![myer brig](https://user-images.githubusercontent.com/55344920/65654744-28a51a80-e05d-11e9-9afa-f31c34edc389.JPG)
